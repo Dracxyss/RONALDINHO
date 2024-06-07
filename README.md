@@ -8,6 +8,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 adrielroberto499@email.com
 
 @alurastartestudante
-
-![](![lr-agl-ssb-vegito-goku](https://github.com/Dracxyss/RONALDINHO/assets/171879844/9afb5444-0004-40a9-94fb-7d4c724569c6))
-
+![](https://media1.tenor.com/m/UyPAkpXRRNIAAAAC/lr-agl-ssb-vegito-goku.gif)
